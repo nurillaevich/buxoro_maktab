@@ -1,0 +1,1 @@
+# buxoro_maktab
